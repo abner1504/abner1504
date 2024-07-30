@@ -7,3 +7,5 @@ Meu nome é Abner Bonifácio Fabiano
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você entrar em contato comigo 📫
+
+0000113420258sp@al.educacao.sp.gov.br
